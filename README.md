@@ -11,4 +11,7 @@ then - Check Non-profit Organizations USA (aka United slave america)
 
 at https://github.com/rakeshkelm/nonprofitorgusasaudiroyalists
 
-then - Check out, nonProfitOrg.pdf 
+then - Check out, emailJenniferKriebelCounselorAddictionCenterBroomeCountyBinghamtonNY.pdf
+
+
+
